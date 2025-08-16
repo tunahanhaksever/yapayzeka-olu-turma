@@ -1,0 +1,1 @@
+# yapayzeka-olu-turma
